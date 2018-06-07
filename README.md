@@ -7,4 +7,4 @@
 
 ### 效果
 
-请关注微信号：【[ifree008](http://mp.weixin.qq.com/s/QDb-dAAH6C7DaywCO4pcwA)】，在历史消息中查看。
+请关注微信号：【[理工小兵](http://mp.weixin.qq.com/s/QDb-dAAH6C7DaywCO4pcwA)】，在历史消息中查看。
